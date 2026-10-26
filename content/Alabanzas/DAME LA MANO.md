@@ -1,0 +1,15 @@
+---
+Categoria: Alab. 2 Tiempos Normal
+Tono: Re Mayor🔹
+---
+
+TONO: RE MAYOR [🎧](https://youtu.be/1O9ToNhpcss?t=159&si=IhPrun13O0_uCNMV)
+
+**//
+DAME LA MANO
+QUERIDO HERMANO
+Y VAMOS JUNTOS ADORAR A NUESTRO DIOS**
+
+**//
+POR QUÉ EL ES DIGNO DE RECIBIR TODA ALABANZA,
+TODA GLORIA Y TODA HONRA DE NUESTRO CORAZÓN**

@@ -1,0 +1,1 @@
+[G]Hola como estas [A]holahola

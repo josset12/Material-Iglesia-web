@@ -1,0 +1,83 @@
+<%*
+let tp_text = tp.file.selection();
+
+if (!tp_text) {
+    tp_text = tp.file.content;
+}
+
+if (tp_text) {
+    let lineas = tp_text.split("\n");
+    let enMetadatos = false;
+    let bloques = [];
+    let bloqueActual = [];
+
+    for (let i = 0; i < lineas.length; i++) {
+        let linea = lineas[i];
+        let lineaTrim = linea.trim();
+
+        // 1. Conservar Metadatos intactos
+        if (i === 0 && lineaTrim === "---") {
+            enMetadatos = true;
+            bloques.push({ tipo: "metadato", contenido: linea });
+            continue;
+        }
+        if (enMetadatos) {
+            bloques.push({ tipo: "metadato", contenido: linea });
+            if (lineaTrim === "---") enMetadatos = false;
+            continue;
+        }
+
+        // 2. IGNORAR divisor ━ y elementos especiales con ▶️ o 🔹 (se quedan intactos)
+        if (linea.includes("━") || linea.includes("▶️") || linea.includes("🔹")) {
+            if (bloqueActual.length > 0) {
+                bloques.push({ tipo: "estrofa", contenido: bloqueActual.join("\n") });
+                bloqueActual = [];
+            }
+            bloques.push({ tipo: "especial", contenido: linea });
+            continue;
+        }
+
+        // 3. Detectar línea de TONO
+        if (lineaTrim.toUpperCase().startsWith("TONO")) {
+            if (bloqueActual.length > 0) {
+                bloques.push({ tipo: "estrofa", contenido: bloqueActual.join("\n") });
+                bloqueActual = [];
+            }
+            bloques.push({ tipo: "tono", contenido: linea.toUpperCase() });
+            continue;
+        }
+
+        // 4. Separar por líneas en blanco
+        if (lineaTrim === "") {
+            if (bloqueActual.length > 0) {
+                bloques.push({ tipo: "estrofa", contenido: bloqueActual.join("\n") });
+                bloqueActual = [];
+            }
+            bloques.push({ tipo: "espacio", contenido: "" });
+        } else {
+            bloqueActual.push(linea.toUpperCase());
+        }
+    }
+    
+    if (bloqueActual.length > 0) {
+        bloques.push({ tipo: "estrofa", contenido: bloqueActual.join("\n") });
+    }
+
+    // Armar el resultado aplicando los asteriscos solo a las estrofas
+    let textoFinal = bloques.map(b => {
+        if (b.tipo !== "estrofa") return b.contenido;
+        let estrofa = b.contenido;
+        if (estrofa.startsWith("**")) {
+            return estrofa.endsWith("**") ? estrofa : `${estrofa}**`;
+        }
+        return `**${estrofa}**`;
+    }).join("\n");
+
+    const activeView = app.workspace.getActiveViewOfType(tp.obsidian.MarkdownView);
+    if (activeView) {
+        activeView.editor.setValue(textoFinal);
+    }
+} else {
+    new Notice("No se encontró contenido.");
+}
+-%>

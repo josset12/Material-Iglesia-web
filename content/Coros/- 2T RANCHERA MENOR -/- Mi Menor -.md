@@ -1,0 +1,634 @@
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/XtZ9sWakdz8?si=U30JQF82y__ekwz-) 🔹[▶️](https://youtu.be/NBlOIJxlm_E?t=21&si=Ab4eMkdi7--54YpZ)
+
+**//
+ELÍSEO QUÉDATE AQUÍ 
+QUE YO VOY PARA BETEL
+EL SEÑOR ME MANDA A MI 
+Y TENGO QUE OBEDECER**
+
+**//
+VIVE TU, VIVE JEHOVA!  
+QUE YO NO TE DEJARE,
+DONDE QUIERA QUE TU  VAYAS
+YO TAMBIÉN CONTIGO IRÉ //**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/8C3oEVog0g8?t=96&si=_-y40VCd4pChMI7P) 🔹
+
+**//
+DIOS TIENE UN BARCO QUE NAVEGA EN ALTA MAR
+Y JESUCRISTO ES EL CAPITÁN**
+
+**CORO: //
+LOS MARINEROS QUE NAVEGAN A SU LADO
+SON AQUELLOS QUE HAN LAVADO SU NEGRO CORAZÓN**
+
+**//
+VEN A JESÚS QUE TE INVITA A NAVEGAR
+TRAE TUS CARGAS Y ÉL LAS LLEVARÁ**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/0-A09uLOUAI?t=1667&si=1rBhHZcASXs_ERHA) 🔹
+
+**//
+LA MADRUGADA AÚN ESTABA OSCURA
+Y YO BUSCABA EL ROSTRO DEL SEÑOR**
+
+**//
+SEÑOR JESÚS, TEN COMPASIÓN DE MÍ,
+RESUELVE MIS PROBLEMAS,
+QUE YO CONFÍO EN TI**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/0-A09uLOUAI?t=2102&si=lrhNxKqBp8J-cmJ-) 🔹
+
+**//
+ALABAR A DIOS CUANDO LAS COSAS VAYAN BIEN
+ALABAR A DIOS CUANDO EN LA VIDA NO HAY PROBLEMA**
+
+**//
+PERO YO LE ALABO DENTRO DE MIS QUEBRANTOS
+Y ESTE CRISTO SANTO SE GLORIFICA DENTRO DE MÍ**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/0-A09uLOUAI?t=2308&si=IQ5SpJ6DE85IuWPm) 🔹
+
+**//
+NO HAY UN SALUDO MÁS LINDO
+QUE EL SALUDO DEL CRISTIANO**
+
+**//
+TE DA LA MANO Y TE DICE:
+"DIOS TE BENDIGA, MI HERMANO"**
+
+**CORO: //
+DIOS TE BENDIGA, DIOS TE BENDIGA
+DIOS TE BENDIGA, MI HERMANO**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/0-A09uLOUAI?t=2600&si=jdoZLgBYUznoP2QM) 🔹
+
+**//
+LOS QUE ESPERAN,
+LOS QUE ESPERAN EN JEHOVÁ**
+
+**//
+COMO LAS ÁGUILAS,
+COMO LAS ÁGUILAS,
+SUS ALAS LEVANTARÁN**
+
+**CORRERÁN Y NO SE CANSARÁN
+CAMINARÁN, NO SE FATIGARÁN
+//NUEVAS FUERZAS TENDRÁN,
+NUEVAS FUERZAS TENDRÁN
+LOS QUE ESPERAN,
+LOS QUE ESPERAN EN JEHOVÁ//**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/ZqjySMoRGow?t=0&si=dImBJeiShieVFF_x)🔹
+
+**AMÉMONOS DE CORAZÓN
+NO DE LABIOS NI DE OÍDO
+AMÉMONOS DE CORAZÓN
+NO DE LABIOS NI DE OÍDO
+PARA CUANDO CRISTO VENGA, PARA CUANDO CRISTO VENGA
+NOS ENCUENTRE PREPARADOS
+PARA CUANDO CRISTO VENGA, PARA CUANDO CRISTO VENGA
+NOS ENCUENTRE PREPARADOS
+¿CÓMO PUEDES TÚ ORAR ENOJADO CON TU HERMANO?
+¿CÓMO PUEDES TÚ ORAR ENOJADO CON TU HERMANO?
+DIOS NO ESCUCHA LA ORACIÓN, DIOS NO ESCUCHA LA ORACIÓN
+SI NO ESTÁS RECONCILIADO
+DIOS NO ESCUCHA LA ORACIÓN, DIOS NO ESCUCHA LA ORACIÓN
+SI NO ESTÁS RECONCILIADO**
+
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/xKbpFKJvQsY?t=18&si=_u9zLGyaghnyKAHq)
+
+**//
+YO SE QUE ESTÁS AQUÍ MI SEÑOR
+YO SE QUE ESTÁS AQUÍ**
+
+**CORO: //
+///Y MI ALMA TE ALABA///
+PORQUE SÉ QUE ESTÁS AQUÍ**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/yJ_mjU_zpA0?t=108&si=cxZCplxk8J6TDR3T)
+
+**//
+YO ME ALEGRÉ CON LOS QUE ME DECÍAN
+A LA CASA DE JEHOVÁ IREMOS**
+
+**//
+YO IRÉ, YO IRÉ,
+A LA CASA DE JEHOVÁ YO IRÉ**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/xKbpFKJvQsY?t=0&si=0glvF9FMXtMi5TJK)
+
+**//
+///YO ESPERO EL SON///
+DE LA TROMPETA FINAL**
+
+**YO SÉ QUE CRISTO PRONTO VENDRÁ
+Y A SU PUEBLO SE LLEVARÁ
+Y A SU REINO NOS LLEVARÁ
+CUANDO SUENE LA TROMPETA FINAL**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/yJ_mjU_zpA0?t=625&si=VB7j6-7pRN5CXjDN)
+
+**//
+VEN, VEN, VEN ESPÍRITU DIVINO
+VEN, VEN, VEN, ACÉRCATE A MÍ**
+
+**CORO: //
+APODÉRATE, APODÉRATE
+APODÉRATE DE TODO MI SER**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/A4qj5tkohmg?t=21&si=xZZb76gMC2F1REPa)
+
+**//
+SI TUVIERAS FE
+COMO UN GRANO DE MOSTAZA,
+ESO LO DICE EL SEÑOR**
+
+**//
+TU LE DIRÍAS A ESE MONTE
+¡MUÉVETE, MUÉVETE!**
+
+**//
+Y ESOS MONTES SE MOVERÁN,
+SE MOVERÁN, SE MOVERÁN**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/A4qj5tkohmg?t=162&si=Ru8EjKP_l-f457mI) 🔹
+
+**//
+ELIAS ORABA EN EL MONTE CARMELO,
+PARA QUE EL FUEGO BAJARA DE LOS CIELOS**
+
+**//
+Y CUANDO EL ORO EL FUEGO CALLO
+Y TODO EL HOLOCAUSTO ALLÍ SE CONSUMIÓ**
+
+**//
+PERO QUE BAJE EL FUEGO DESCIENDA LA LLAMA
+DESCIENDA LA LLAMA CON SU PODER**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/A4qj5tkohmg?t=287&si=v3b85wyX1NeFIl9O) 🔹
+
+**//
+DIOS ES NUESTRO AMPARO Y FORTALEZA
+NUESTRO PRONTO AUXILIO EN LA TRISTEZA**
+
+**//
+POR TANTO NO TEMEREMOS
+AUNQUE LA TIERRA SEA REMOVIDA
+Y SE TRASPASEN LOS MONTES
+AL CORAZÓN DEL MAR**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/A4qj5tkohmg?t=414&si=CLfFRhz-iOYe1BlA) 🔹
+
+**//HAY VICTORIA EN MI JESÚS, EN MI JESÚS//
+//LAS CADENAS QUE ME ATABAN
+ROTAS SON POR EL SEÑOR//**
+
+**//Y MI COPA LLENA ESTÁ, LLENA ESTÁ//
+//DEL ACEITE QUE DESCIENDE
+DESDE EL TRONO DEL SEÑOR//**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/A4qj5tkohmg?t=533&si=y8P1CtlNfzsA00Jj) 🔹
+
+**//
+SI TÚ QUIERES SENTIR EL ESPÍRITU DE DIOS
+OLVÍDATE DE LA PRUEBA Y COMIENZA A ALABAR A DIOS**
+
+**//
+SI TÚ ALABAS A DIOS LA PALOMA VA A DESCENDER
+Y VAS A SENTIR EL PODER DEL SANTO DE ISRAEL
+LAS MALICIAS, LOS DEMONIOS Y LOS YUGOS SE VAN A IR
+LAS CADENAS SE ROMPERÁN EN EL NOMBRE DE JESÚS**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/A4qj5tkohmg?t=710&si=C6pwd4FXTOyJrlyj) 🔹
+
+**//
+SI NO CONOCES EL PODER DE DIOS
+PÍDELE A CRISTO Y ÉL TE LO DARÁ**
+
+**//
+TE LO DARÁ, TE LO DARÁ
+PÍDELE A CRISTO Y ÉL TE LO DARÁ**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/A4qj5tkohmg?t=798&si=7xaoPL21FLc77Ej1) 🔹
+
+**//
+SI EL ESPÍRITU DE DIOS SE MUEVE EN MÍ,
+YO DANZO COMO DAVID**
+
+**//
+///YO DANZO///
+COMO DAVID**
+
+**(SE REPITE CAMBIANDO LA ACCIÓN:
+CANTO, ALABO, SALTO, ORO, RÍO)**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/LMauxWT7r1s?t=0&si=eGPdH8iZHzkZO3d2)
+
+**///SOLAMENTE EL AMOR DE JESÚS///
+//PUEDE CAMBIAR//
+TU CORAZÓN**
+
+**///¿CUÁNTAS VECES QUISISTE AMAR?///
+//Y NO SABÍAS//
+PERDONAR**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/Ij1lRxhs094?t=25&si=p4T7ZP4BUSHyd98F)
+
+**X2
+///HAY VICTORIA///
+EN LA SANGRE DE JESÚS**
+
+**NO PODRÁ EL ENEMIGO
+DAÑAR A NUESTRAS ALMAS**
+
+**POR QUE ///HAY VICTORIA///
+EN LA SANGRE DE JESÚS**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/rU9lwTDizBA?t=7&si=2Fs66UeGtihQ6cBj)
+
+**GRANDE Y MARAVILLOSAS SON TUS OBRAS
+SEÑOR DIOS TODOPODEROSO
+JUSTOS Y VERDADEROS SON TUS CAMINOS
+//REY DE LOS SANTOS//**
+
+**QUIEN NO TE TEMERÁ SEÑOR
+Y GLORIFICARÁ TU NOMBRE
+PUES SOLO TÚ ERES SANTO
+POR LO CUAL TODAS LAS NACIONES VENDRÁN
+//Y TE ADORARÁN//
+//ALELUYA, AMÉN
+ALELUYA, AMÉN//**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/rU9lwTDizBA?t=115&si=5uCFhvd4GG7gu5w9) 🔹
+
+**//
+CRISTO ES LA PEÑA DE HOREB QUE ESTÁ BROTANDO
+AGUA DE VIDA SALUDABLE PARA TI/MI**
+
+**CORO:
+VEN, A TOMARLA QUE ES MÁS DULCE QUE LA MIEL
+REFRESCA EL ALMA Y SACIA TODO TU SER
+CRISTO ES LA PEÑA DE HOREB QUE ESTÁ BROTANDO
+AGUA DE VIDA SALUDABLE PARA MI/TI**
+
+**CRISTO ES EL LIRIO DEL VALLE DE LAS FLORES
+ÉL ES LA ROSA BLANCA Y PURA DE SARÓN
+CRISTO ES LA VIDA Y AMOR DE LOS AMORES
+ÉL ES LA ETERNA FUENTE DE LA SALVACIÓN**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/rU9lwTDizBA?t=214&si=phY4GRvpLH2wxVx6) 🔹
+
+**OH NO VES QUE ESTA CAMBIANDO TODO
+OH NO VES LAS COSAS COMO ESTÁN.
+TIEMPO DE DOLOR DE INDIFERENCIA
+TIEMPO DE FRIALDAD, TIEMPO DE LUCHAR 
+TIEMPO DE ESTAR FIRMES CON VALOR.**
+
+**LEVANTEN LAS MANOS PUEBLO DEL SEÑOR,
+QUE JESÚS FUERZAS DARÁ.-**
+
+**AUNQUE LAS TINIEBLAS HAYA VENCIDO SOBRE ALGUNO
+///TODAVÍA HAY PUEBLO///
+PARA BATALLAR**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/LMauxWT7r1s?t=160&si=NKL-c4VyjlcKH4mD)
+
+**//ESA ZARZA QUE EN EL MONTE NO DEJABA DE ARDER//
+ESA ZARZA ERA LA GLORIA, LA PRESENCIA DE MI DIOS
+// ESA ZARZA QUIERO QUE ARDA DENTRO DE MI CORAZÓN //**
+
+**//
+///FUEGO///
+FUEGO QUE NO SE APAGA
+///FUEGO///
+FUEGO CELESTIAL**
+
+**CORO: //
+FUEGO QUE ABRASA EL ALMA,
+FUEGO QUE SANTIFICA,
+FUEGO QUE PURIFICA
+DENTRO DE MI CORAZÓN**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/5T0Qs4MCD4M?t=19&si=PodWelgbSqBYXYpM) 🔹
+
+**////
+JESÚS QUERIDO
+QUEREMOS TU PODER**
+
+**//
+CON TU PODER LOS SORDOS OYEN
+CON TU PODER LOS CIEGOS TAMBIÉN VEN
+CON TU PODER LOS MUDOS TAMBIÉN HABLAN
+JESÚS QUERIDO QUEREMOS TU PODER**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/5T0Qs4MCD4M?t=138&si=3oIJMw1z3AkUHlRz)
+
+**//
+ENAMORADO DE JESÚS, ENAMORADO
+ENAMORADO DE JESÚS**
+
+**//ENAMORADO DE ÉL//
+EN MI CORAZÓN LLEVO ESCRITO
+JESUCRISTO DE NAZARETH**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/5T0Qs4MCD4M?t=256&si=AdZoDolwCO1yLEip) 🔹
+
+**//
+YO QUIERO PADRE QUERIDO
+SER LLENO DE TU PODER**
+
+**//
+Y QUE EL ESPÍRITU SANTO
+GOBIERNE TODO MI SER**
+
+**//
+SEÑOR YO QUIERO REVERDECER
+COMO LA VARA DE AARÓN**
+
+**//
+SEÑOR YO QUIERO REVERDECER
+QUIERO SER LLENO DE TU PODER**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/yJ_mjU_zpA0?t=370&si=HSfjaS0Okvz2MEEy)
+
+**//
+EN EL ALTAR DE DIOS, EN EL ALTAR DE DIOS
+EL FUEGO ESTÁ ENCENDIDO**
+
+**CORO: //
+NADIE LO PODRÁ APAGAR,
+NADIE LO PODRÁ APAGAR
+PORQUE EL FUEGO DEL SEÑOR
+EN MI CORAZÓN ESTÁ**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/sIsV0DCscH4?t=14&si=C_yvNPxqHPIpArG9)
+
+**DALE LA OFRENDA AL SEÑOR
+DÁSELA DE CORAZÓN
+PARA QUE CUANDO AL CIELO TU CLAMES
+TE RESPONDA CON AMOR**
+
+**QUE NO SE QUEDE EL DOLOR
+CUANDO HAYAS OFRENDADO
+//DIOS BENDICE AL DADOR ALEGRE
+Y LE DA DOBLE DE LO QUE A DADO//**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/Hb_BdFtrcpo?t=21&si=Xcj8OSEenq8U36xb) 🔹
+
+**//
+EL HOMBRE DE GALILEA, VA PASANDO VA**
+
+**///DÉJALO QUE TE TOQUE///
+Y RECIBE LA BENDICIÓN**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/Hb_BdFtrcpo?t=457&si=rd1macQeQbU_xOVy)
+
+**//PON ACEITE EN MI LÁMPARA SEÑOR//
+QUE YO QUIERO SERVIRTE CON AMOR
+PON ACEITE EN MI LÁMPARA SEÑOR**
+
+**SEÑOR JESÚS TU ERES MI VIDA,
+SEÑOR JESÚS TU ERES MI AMOR.
+//SALVASTE MI ALMA PERDIDA
+POR ESO TE ALABO
+CON EL CORAZÓN//**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/0-A09uLOUAI?t=426&si=yxDhvhTg6Es9-lfx)
+**//
+UNA COSA YO SE Y EN ESA CREO,
+QUE YO ERA CIEGO, CIEGO, CIEGO Y AHORA VEO**
+
+**//
+EL PEOR DE LOS CIEGOS ES TODO AQUEL
+QUE TENIENDO LA VISTA NO QUIERA VER**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/Hb_BdFtrcpo?t=190&si=sv_48A3XWNSYDDao)
+
+**ESTAMOS VIVIENDO UN AVIVAMIENTO
+ESTAMOS SINTIENDO EL PODER DE DIOS,
+EL PODER DEL PADRE, EL PODER DEL HIJO
+//Y EL PODER DEL SANTO ESPÍRITU DE DIOS//.**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/Hb_BdFtrcpo?t=324&si=fPpxB4SyBL-S-KhZ) 🔹
+
+**//
+SI NO HUBIERA SIDO POR EL SEÑOR**
+
+**//
+MI ALMA SE HUBIERA PERDIDO
+SI NO HUBIERA SIDO POR EL SEÑOR**
+
+**//
+MUCHÍSIMAS GRACIAS OH BUEN SEÑOR**
+
+**//
+TU SANGRE EN LA CRUZ DERRAMASTE
+CON ELLA LIMPIASTE MI CORAZÓN**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+**//
+EL CIELO Y LA TIERRA PASARÁN
+MAS MIS PALABRAS NO PASARÁN**
+
+**//NO, NO, NO PASARÁN//****
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/PW2BShGvXUw?t=23&si=0zhdfeE3u_6WrEl5) 🔹
+
+**//
+EN EL APOCALIPSIS DEL 1 AL 7 ESTÁ
+LA VENIDA DE CRISTO
+EN GLORIA Y MAJESTAD.
+EL DÍA NI LA HORA NADIE LO SABRÁ,
+//PERO ÉL VIENE EN UNA NUBE Y TODO OJO LE VERÁ//**
+
+**//LE VERA, LE VERÁ, TODO OJO LE VERÁ//**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/WjHIeXdYFEM?t=185&si=L7v12F8zUtVm0Wro) 🔹
+
+**YO HE CREÍDO EN UN PODER QUE NO SE TOCA,
+YO HE CREÍDO EN UN PODER QUE NO SE VE,**
+
+**//YO HE CREÍDO EN UN PODER QUE NO SE TOCA NI SE VE
+PERO SE SIENTE EN EL CORAZÓN//**
+
+**(SE REPITE PERO EN VEZ DE YO, TÚ Y DESPUÉS HEMOS)**
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/PW2BShGvXUw?t=170&si=OLRX7wp7-q7qJxBb)
+
+**//
+ESTARÁS TU VELANDO
+COMO LAS DIEZ VÍRGENES**
+
+**//
+Y A LA MEDIA NOCHE
+LLEGÓ EL ESPOSO
+Y LAS QUE ESTABAN APERCIBIDAS
+FUERON CON ÉL**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/Hb_BdFtrcpo?t=148&si=fIhz7k13NOmr9uHL)
+
+**///SANTO///
+DICEN LOS SERAFINES
+///SANTO///
+ES EL SEÑOR JEHOVÁ
+///SANTO///
+ES EL DIOS QUE NOS REDIME**
+
+**//
+PORQUE TRES VECES SANTO
+LA TIERRA LLENA DE SU GLORIA ESTÁ**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/yJ_mjU_zpA0?t=489&si=RvTMiUSUx36y6xZ2)
+
+**//
+EN EL PRINCIPIO EL ESPÍRITU DE DIOS
+SE MOVÍA SOBRE LAS AGUAS**
+
+**//
+PERO AHORA SE ESTÁ MOVIENDO
+DENTRO DE MI CORAZÓN**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/Vofdhh1frBA?t=81&si=42oTsznbNsgCEGB7)
+
+**//COMO LADRÓN EN LA NOCHE//
+ASÍ SERÁ LA VENIDA DEL HIJO DEL HOMBRE**
+
+**ESO LO DICE LA BIBLIA, Y LA BIBLIA NO PUEDE MENTIR
+//QUE SU VENIDA SERÁ COMO LADRÓN EN LA NOCHE//**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/nibFsnj_82M?t=22&si=cNlgZOAmoM6LN0Pf)
+
+**//
+ÚNETE MÁS, ÚNETE MÁS Y ALABAREMOS
+AL DIOS DEL CIELO,
+A JEHOVÁ DE LOS EJÉRCITOS**
+
+**//
+MI ALMA SE GOZA CUANDO ESTÁ
+ALABANDO A JEHOVÁ**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/8R_YtRatswc?t=59&si=1A_p9EoFGXzXadKX) 🔹
+
+**//
+AUNQUE OTROS CANTEN PARA OTROS DIOSES
+HECHOS DE METAL, DE MADERA O DE BRONCE
+YO ALABARÉ EL NOMBRE DE JEHOVÁ
+EL NOMBRE DE JEHOVÁ ALABARÉ**
+
+**//
+PORQUE SOY UN SACERDOTE
+LLAMADO A MINISTRAR EN SU PRESENCIA
+Y AHORA ALABARÉ
+EL SANTO NOMBRE BENDITO DE JEHOVÁ**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/wkSGcmyw6lI?t=0&si=_d-5jxt0hsda0_v3) 🔹
+
+**//
+ESTAMOS EN EL ARCA DEL PODER DE DIOS
+Y EL ESPÍRITU SANTO ESTÁ A TU ALREDEDOR**
+
+**//
+NO DEJES QUE SATANÁS TE APAGUE EL FUEGO,
+PORQUE CON ESE FUEGO ES EL PODER DE DIOS**
+
+**//
+SIENTES EL PODER DE DIOS,
+SIENTES EL PODER DE DIOS//**
+
+**//
+AQUÍ CAYÓ EL PODER DE DIOS
+AQUÍ CAYÓ EL PODER DE DIOS**
+
+**//
+RECIBE DEL PODER DE DIOS 
+RECIBE DEL PODER DE DIOS **
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/nibFsnj_82M?t=564&si=-RGNa16Npy3s0MjE) 🔹
+
+**//
+//AQUÉL FUEGO QUE CAYÓ A 120 UNA VEZ//
+//DIOS ME HIZO PENTECOSTAL 
+DE LA CABEZA A LOS PIES//**
+
+**//FUEGO PENTECOSTÉS, FUEGO PENTECOSTÉS 
+FUEGO FUEGO PENTECOSTÉS 
+FUEGO PENTECOSTÉS//
+DE LA CABEZA A LOS PIES**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/nibFsnj_82M?t=1047&si=F1h0lQZgluI6CqFy) 🔹
+
+**//
+COMO JACOB LUCHO CON EL ANGEL 
+YO NO TE SOLTARÉ HASTA QUE EL FUEGO BAJÉ **
+
+**YO NO TE SOLTARÉ**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+[▶️](https://youtu.be/yJ_mjU_zpA0?t=242&si=Nr9gW0V-sz9Nowe5)
+
+**//
+CUANDO EL PUEBLO ALABA A DIOS
+//SUCEDEN COSAS//
+MARAVILLOSAS**
+
+**//
+HAY SANIDAD, LIBERACIÓN,
+SE SIENTE LA BENDICIÓN**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+**//
+OH JERUSALÉN QUE BONITA ERES,
+CALLES DE ORO, MAR DE CRISTAL**
+
+**//
+POR ESAS CALLES YO VOY A CAMINAR,
+CALLES DE ORO MAR DE CRISTAL**
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━

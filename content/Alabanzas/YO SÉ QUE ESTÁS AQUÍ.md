@@ -1,0 +1,15 @@
+---
+Categoria: Alab. 2 Tiempos Ranchera
+Tono: Mi Menor
+---
+TONO: MI MENOR
+
+**//YO SE QUE ESTÁS AQUÍ MI SEÑOR
+YO SE QUE ESTÁS AQUÍ//**
+
+**CORO: //
+Y MI ALMA TE ALABA
+Y MI ALMA TE ALABA
+Y MI ALMA TE ALABA
+PORQUE SÉ QUE ESTÁS AQUÍ**
+
